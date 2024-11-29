@@ -5,7 +5,7 @@
 
 ## podcast with my self 
 *podcast with my self – Presentation*  
-*Video Link:* https://drive.google.com/file/d/1q60QymutuKkApS6K82ojrK42WQu-MsSR/view?usp=drivesdk
+*Video Link:* https://drive.google.com/drive/folders/19HlojUV4clMb_oQUkIyvspGrvwnUg3cl?usp=drive_link
 
 ---
 
